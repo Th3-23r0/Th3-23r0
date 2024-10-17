@@ -1,0 +1,6 @@
+- 👋 Hi, I’m 23r0
+- 🌱 I’m currently learning Python
+- 📫 How to reach me:
+-     E-mail: os998016@gmail.com
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: The unicorn is the national animal of Scotland
